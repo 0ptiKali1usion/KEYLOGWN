@@ -1,0 +1,2 @@
+# KEYLOGWN
+if "SKATEBOARDING IS NOT A CRIME" according to Santa Cruz Skateboards™, then maybe back in 1997, I could have got them to make a bumper sticker that sez "HACKING YOUR HIGH-SCHOOL WITH A KEYLOGGER IS NOT A FEDERAL CRIME. JUST A LOCAL ONE". If I would have realized sooner that the statute of limitations on unauthorized computer (ab)use is only two (2) years, I would have started a (crimes of my youth) museum ages ago! And started it was this exhibit right here.
